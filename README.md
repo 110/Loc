@@ -25,4 +25,4 @@
 
 email: huffaudreads81@gmail.com 
 
-tg: https://t.me/Kereios
+telegram contact : https://t.me/Kereios
